@@ -1,2 +1,2 @@
-# SpondeX.github.io asdasdasd
+# SpondeX.github.io
 
